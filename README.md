@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hardworking 3rd year Undergraduate currently studying a BSc (Hons) in Information Technology Specialized in Software Engineering at SLIIT and prepared to contribute to organizational success while developing new skills to become a software engineer and gaining real-world experience. Highly organized and responsible with strong communication and critical thinking skills.
+Hardworking 4th year Undergraduate currently studying a BSc (Hons) in Information Technology Specialized in Software Engineering at SLIIT and prepared to contribute to organizational success while developing new skills to become a software engineer and gaining real-world experience. Highly organized and responsible with strong communication and critical thinking skills.
 
 
 ## 🌐 Socials:
